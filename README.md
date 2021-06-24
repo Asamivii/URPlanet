@@ -1,1 +1,1 @@
-# osaka.github.io
+# urplanet.github.io
